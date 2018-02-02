@@ -186,7 +186,7 @@ Phone: 408-250-5749 Santa Clara, CA -- 95050
 -   **Highest six month closing rate** for **issue analysis** in Modem
     Team, Qualcomm
 
-**EXTRA CURRICULAR **
+**EXTRA CURRICULAR**
 
 -   Vice-President of CS Graduate Student Governance Association (GSGA),
     University of Cincinnati, 2010-2011
